@@ -1,0 +1,1 @@
+# STA-ANA_ICT10_Q3Seatwork2_Lucas_Samantha
